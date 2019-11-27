@@ -1,2 +1,1 @@
-# Pratikum
-# Pratikum5
+hjgytuhugtf# Pratikum5
