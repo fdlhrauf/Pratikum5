@@ -1,2 +1,1 @@
 # Tugas6
-jhhjgfdhjhjk;
